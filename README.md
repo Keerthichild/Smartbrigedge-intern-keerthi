@@ -1,1 +1,0 @@
-# Smartbrigedge-intern-keerthi
